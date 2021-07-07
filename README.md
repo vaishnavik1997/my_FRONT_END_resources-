@@ -1,1 +1,0 @@
-# my_FRONT_END_resources-
